@@ -1,1 +1,0 @@
-# kimcordez.github.io
